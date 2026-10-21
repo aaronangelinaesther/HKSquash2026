@@ -10,8 +10,6 @@ Notes for the 2026–2027 Hong Kong Squash League.
 ## Sources
 
 - [Division 7A teams](https://www.hksquash.org.hk/public/leagues/teams/id/D00526/league/Squash/year/2026-2027/pages_id/25.html)
-- [Ladies Division 3 teams](https://www.hksquash.org.hk/public/leagues/teams/id/D00541/league/Squash/year/2026-2027/pages_id/25.html)
-- [Ladies Division 3 results and schedules](https://www.hksquash.org.hk/public/leagues/results_schedules/id/D00541/league/Squash/year/2026-2027/pages_id/25.html)
 - [Division 7A results and schedules](https://www.hksquash.org.hk/public/leagues/results_schedules/id/D00526/league/Squash/year/2026-2027/pages_id/25.html)
 - [Ladies Division 3 teams](https://www.hksquash.org.hk/public/leagues/teams/id/D00541/league/Squash/year/2026-2027/pages_id/25.html)
 - [Ladies Division 3 results and schedules](https://www.hksquash.org.hk/public/leagues/results_schedules/id/D00541/league/Squash/year/2026-2027/pages_id/25.html)
